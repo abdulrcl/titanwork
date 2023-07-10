@@ -1,0 +1,3 @@
+Manata
+gamata
+bolata
